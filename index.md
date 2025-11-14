@@ -1,2 +1,0 @@
-## ¡BIENVENIDOS!
-## Gracias por visitar 
